@@ -22,4 +22,4 @@
 
 综上所述，选择一个合适的日本AV免费观看平台需要从多个方面考虑，包括分类清晰度、更新频率、安全性和广告干扰等。通过有效筛选，您可以享受到高质量且安全的观看体验。
 
-<span style="display:none;">[Canonical link]( )</span>
+<span style="display:none;">[Canonical link]( https://github.com/gmz20250711/rbriben7)</span>
